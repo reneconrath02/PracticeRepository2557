@@ -21,3 +21,5 @@ Zachary, BeardedDragon15, pasta, Minecraft or video games
 Loretta, lorettaheinrich, pizza, flying
 
 Jayne, JayneN1, tea, drinking tea
+
+Rene, reneconrath02, CHICKEN AND RICE, piano
