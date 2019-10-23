@@ -13,3 +13,5 @@ Add the Info about you below:
 Hayden, HFeeney, tofu, bike riding
 
 Max, GraciousMaxmus (probably going to change it cus theres a typo), i cant decide, drawing
+
+Loretta, lorettaheinrich, pizza, flying
