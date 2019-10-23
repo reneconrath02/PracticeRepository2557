@@ -12,4 +12,4 @@ Add the Info about you below:
 
 Hayden, HFeeney, tofu, bike riding
 
-Zachary, BeardedDragon15, pasta, Minecraft
+Zachary, BeardedDragon15, pasta, Minecraft or video games
